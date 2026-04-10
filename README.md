@@ -19,4 +19,4 @@ https://fdczsy8.github.io/VIP_analysis/
 
 您必须在下载后的24个小时之内，从您的电脑中彻底删除上述内容。请支持正版。
 
-版权归原作者或公司所有，如果有侵犯到您的权益，请第一时间联系邮箱：[an_shiguang@163.com](mailto:an_shiguang@163.com)
+版权归原作者或公司所有，如果有侵犯到您的权益，请第一时间联系邮箱：[692530740@qq.com](mailto:692530740@qq.com)
