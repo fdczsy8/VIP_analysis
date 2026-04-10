@@ -7,7 +7,7 @@ VIP影视解析
 
 # 在线预览
 
-https://vip.shiguang666.eu.org/
+https://fdczsy8.github.io/VIP_analysis/
 
 # 免责声明
 
